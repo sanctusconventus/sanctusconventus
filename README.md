@@ -12,8 +12,6 @@ system of nine
 clinically diagnosed
 
 collectively him
-  
-more info @beakerbong
 
 
   ![](https://komarev.com/ghpvc/?username=sanctusconventus&color=lightgrey)

@@ -8,9 +8,6 @@
 
 <div align="center">
 system of nine
-  
-clinically diagnosed
-
 collectively him
 
   ![](https://komarev.com/ghpvc/?username=sanctusconventus&color=lightgrey)

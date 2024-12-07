@@ -9,7 +9,7 @@
 <div align="center">
 system of nine
 
-dx'ed; f60.3
+diagnosed; f60.3
 
 
   ![](https://komarev.com/ghpvc/?username=sanctusconventus&color=lightgrey)

@@ -1,7 +1,7 @@
 
 <div align="center">
   
-  <img src="https://64.media.tumblr.com/f0f51fb2bd564a18706ca97f37e28b01/ab09cd1168144eed-3c/s640x960/34419b2c77617a16e9a079e67a4b5998b2167413.pnj"> </img>
+  <img src="https://media.discordapp.net/attachments/1105261445270229134/1314767410187735182/173353435036757998_2_Cropped.jpg?ex=6754f811&is=6753a691&hm=d8195bfe1473a14679c5ca806f5f0d443575dd73cd0c63283582f2270e2bf762&=&format=webp&width=1038&height=390"> </img>
 
   <h2>sanctus conventus</h2>
 </div>
@@ -13,10 +13,7 @@ clinically diagnosed
 
 collectively him
 
-
   ![](https://komarev.com/ghpvc/?username=sanctusconventus&color=lightgrey)
   
-<img src="https://64.media.tumblr.com/311534652a1ea41bb0df05d6ec5d7db5/ab09cd1168144eed-54/s640x960/befc84601494a9f7f21369eca35d17cf8673035c.pnj"> </img>
-
 </div>
 

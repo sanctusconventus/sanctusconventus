@@ -1,13 +1,13 @@
 
 <div align="center">
   
-  <img src="https://media.discordapp.net/attachments/1105261445270229134/1314767410187735182/173353435036757998_2_Cropped.jpg?ex=6754f811&is=6753a691&hm=d8195bfe1473a14679c5ca806f5f0d443575dd73cd0c63283582f2270e2bf762&=&format=webp&width=1038&height=390"> </img>
+  <img src="https://media.discordapp.net/attachments/1105261445270229134/1317931331166146570/tumblr_2a196adf57b7d2e7fceafaeea3df3b9d_477e01a6_1280.png?ex=67607ab3&is=675f2933&hm=96c24699c6dc9b4ed8acf229873659d1ea13457889266b2355a36f040a3ebf4e&=&format=webp&quality=lossless&width=1715&height=688"> </img>
 
   <h2>sanctus conventus</h2>
 </div>
 
 <div align="center">
-system of nine
+system of ten
 
 diagnosed; f44.9
 
